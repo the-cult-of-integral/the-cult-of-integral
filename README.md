@@ -20,7 +20,4 @@ There are several reasons I have created The Cult of Integral. These include, bu
 
 ### How do I join/contribute?
 
-[Join our discord server and pass the challenge!](https://discord.gg/nRs77CUA5N)
-
-
-![integral](https://user-images.githubusercontent.com/66549839/118875488-0623dd00-b8e4-11eb-89c4-e09b0ad1ff7f.png)
+Spread the word of the integral by any means - even if it means shooting a pornographic video of you shoving an integral-shaped toy inside of you to notify people of this beautiful symbol's existence.
