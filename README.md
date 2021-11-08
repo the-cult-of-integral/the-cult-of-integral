@@ -1,20 +1,10 @@
-# The Cult of Integral
+# ∫ The Cult of Integral ∫
 
 ---
 
 ***"OP is pretty fucked up. Even by r/copypasta standards." - Deleted user.***
 
-Warning: The writings of this cult are, intentionally, often extremely explicit and taboo. These writings may contain the following themes and/or actions:
-
-* Descriptions of beastiality.
-* Descriptions of rape.
-* Descriptions of gore/extreme violence.
-* Descriptions of paedophillia.
-* Horror/Uncanny valley material.
-* Controversial politics.
-* Several descriptions of YandreDev and his lazy, fat ass.
-
-Do not read if you are allergic to autism or fun - except the normal copypasta, y... you can read those i- if you want, daddy... *UwU*
+Warning: The writings of this cult are highly NSFW and, at times, quite fucked up - don't read if easily triggered!
 
 ---
 
