@@ -1,20 +1,5 @@
 # ∫ The Cult of Integral ∫
 
-The Cult of Integral is, at its core, a place where all copypasta written by u/xSerpentine (and rarely, followers) are secured, contained and protected. To access over one hundred copypastas created by u/xSerpentine and others, click the copypastas folder to read on this site or clone the repository.
+A series of over one hundred copypasta written by u/xSerpentine and, rarely, collaberators. Click the copypastas folder, download the repository, or visit the profile of u/xSerpentine to navigate between copypasta. Best copypasta include "There's no more cum on Earth.", "I just fapped to your profile picture" and "I just nutted in november and there's nothing you can do about it."
 
----
-
-*"OP is pretty fucked up. Even by r/copypasta standards." - Deleted user.*
-
-**Warning: Some the following writings are extremely NSFW, as is the nature of original copypastas nowadays.**
-
-As deleted user warns, proceed with caution and do not read if triggered by references to or scenes of:
-- Murder, arson, riots, etc.
-- Rape.
-- Peadophillia.
-- Beastiality.
-- Several descriptions of YandreDev.
-- Other random, seemingly upsetting things, I guess?
-
-**Disclaimer for retarded people:** Oh and, just because I write about these things for fucked-up fun on r/copypasta doesn't actually mean I support any of this - please don't fuck your snake whilst flying above a city to rain snake cum down on pedestrians, smh.
-
+**Warning:** As the goal is to create the most bizare, original copypasta (especially so-called, "trolling amunition"), many copypasta featured here contain extremely provacative or NSFW themes, including murder, arson, terrorism, beastiality, YandreDev, rape, etc. There are no trigger warnings for the titles though, guess you'll just have to work out which ones to avoid yourself lmao.
