@@ -1,11 +1,11 @@
 <h2 align="center">Welcome to <a href="https://the-cult-of-integral.github.io/profile/">the Cult of Integral</a>!</h2>
 
 <p align="center">
-	<a href="https://github.com/DARKNOSY">
-		<img src="https://komarev.com/ghpvc/?username=the-cult-of-integral&label=Profile%20views&color=0e75b6&style=flat" alt="DARKNOSY" />
+	<a href="https://github.com/the-cult-of-integral">
+		<img src="https://komarev.com/ghpvc/?username=the-cult-of-integral&label=Profile%20views&color=0e75b6&style=flat" alt="the-cult-of-integral profile views" />
 	</a>
-	<a href="https://github.com/darknosy">
-		<img src="https://img.shields.io/github/followers/the-cult-of-integral?label=Followers" alt="darknosy" />
+	<a href="https://github.com/the-cult-of-integral">
+		<img src="https://img.shields.io/github/followers/the-cult-of-integral?label=Followers" alt="the-cult-of-integral followers" />
 	</a>
 </p>
 
